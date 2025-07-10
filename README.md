@@ -26,4 +26,4 @@
 
 可以说，“性交黄色大片”在成人资源站中是流量核心，但要长期维持影响力，平台必须从内容质量、技术体验、合规安全、SEO策略、用户运营五维协同发力，才能在激烈市场竞争中稳固领先位置。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/uhh295345/ribennn7602 )</span>
